@@ -11,7 +11,7 @@ I am a good listener so if you want to talk feel free to , most of the time I am
 If you want to add me on genshin 
 whisper me your id or ask me for mine (Europe server)
 
-As I said , I play MLA( mobile lehends adventure ) and brawl stars too ,so you can add me there 2 , just whisper
+As I said , I play MLA( mobile legends adventure ) and brawl stars too ,so you can add me there 2 , just whisper
 ♡
 
 
