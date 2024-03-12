@@ -1,4 +1,4 @@
-Gittarackur (I took it from HxH ) or my real name , Anamarija
+My real name is Anamarija but in games I use Gittarackur (I took it from HxH)
 
 Most of the time I am at JJBA area on safe or 18+ server
 
