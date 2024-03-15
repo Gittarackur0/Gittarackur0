@@ -4,7 +4,7 @@ Most of the time I am at JJBA area on safe or 18+ server
 
 C+H , interact , basically anything , I don't mind
 
-My interests are JoJo , reading , HxH , Genshin , MLA , Madoka , JJK , history and few more . If you have something to reccommend me for reading or watching please feel free to tell me ! 
+My interests are JoJo , reading , HxH , Genshin , MLA , Madoka , JJK , history and few more . If you have something to recommend me for reading or watching please feel free to tell me ! 
 
 I am a good listener so if you want to talk feel free to , most of the time I am online (alone or with my friends)
 
