@@ -8,12 +8,14 @@ My interests are JoJo , reading , HxH , Genshin , MLA , Madoka , JJK , history a
 
 I love most of the JoJo characters but my favs are Okuyasu , Josuke , Jodio , Dragona , Kars and Ermes ! 
  
-If you wanna talk just approach me , I am usually online (alone or with friends) .
+If you wanna talk just approach me , I am usually online alone or with my friends . 
 
 If you want to add me on genshin 
 whisper me your id or ask me for mine (Europe server)
 
-As I said , I play MLA( mobile legends adventure ) and brawl stars too ,so you can add me there 2 , just whisper
-♡
+As I said , I play MLA( mobile legends adventure ) and brawl stars too ,so you can add me there 2 , just whisper .
+
+Ily Todo and Ena ❣️
+
 
 
