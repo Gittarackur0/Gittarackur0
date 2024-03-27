@@ -6,7 +6,7 @@ C+H , interact , basically anything , I don't mind
 
 My interests are JoJo , reading , HxH , Genshin , MLA , Madoka , JJK , history and few more . If you have something to recommend me for reading or watching please feel free to tell me ! 
 
-I love most of the JoJo characters but my favs are Okuyasu , Josuke , Jodio , Dragona , Kars and Ermes ! 
+I love most of the JoJo characters but my favs are Okuyasu , Josuke , Jodio , Dragona , Miu Miu and Ermes!
  
 If you wanna talk just approach me , I am usually online alone or with my friends . 
 
