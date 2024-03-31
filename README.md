@@ -13,7 +13,6 @@ If you wanna talk just approach me , I am usually online alone or with my friend
 If you want to add me on genshin 
 whisper me your id or ask me for mine (Europe server)
 
-As I said , I play MLA( mobile legends adventure ) and brawl stars too ,so you can add me there 2 , just whisper .
 
 Ily Todo and Ena ❣️
 
