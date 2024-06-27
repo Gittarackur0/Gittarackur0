@@ -1,4 +1,4 @@
-I kin Jodio ♡
+I kin Jodio 
 
 
 
