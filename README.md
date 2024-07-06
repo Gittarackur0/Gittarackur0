@@ -1,4 +1,4 @@
-☆❤️: JoJo🤓👆, HxH🗿, History🥰 , books👑 , movies🥹 , my wife🩷
+☆❤️: JoJo🤓👆, HxH🗿, History🥰 , books😈, movies🥹 , my wife🩷
 
 ☆I LOVE ERMES & MIU MIU 😍
 
@@ -6,6 +6,7 @@
 
 ☆ENA🩷
 
+☆MORGENSTERN , MORGENSTERN , MORGENSTERN , MORGENSTERN , MORGENSTERN 😈
 
 
 
