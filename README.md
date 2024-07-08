@@ -1,12 +1,6 @@
-☆❤️: JoJo🤓👆, HxH🗿, History🥰 , books😈, movies🥹 , my gf Ena🩷
+I live my gf Ena🩷
 
-☆I LOVE ERMES & MIU MIU 😍
-
-☆Kins: Jodio🗿 & Illumi 📍
-
-☆Guardian tales 🔛🔝
-
-☆MORGENSTERN , MORGENSTERN , MORGENSTERN , MORGENSTERN , MORGENSTERN 😈
+Read my carrd if u want to know more abt me but prepare cuz it is quite long 😔
 
 
 
