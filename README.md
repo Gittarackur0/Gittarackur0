@@ -2,7 +2,7 @@ I love my gf 🩷
 
 kins :Jodio & Illumi
 
-Victim complex is real💔
+Wanna know a little secret ?
 
 
 
